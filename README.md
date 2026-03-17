@@ -1,1 +1,1 @@
-<https://minwoo19930301.github.io/sls/>
+<https://minwoo19930301.github.io/SLS-PPT/>
